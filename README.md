@@ -1,1 +1,1 @@
-# ALMY-Arquitectura-informal-o-emp-rica
+# ALMY-Arquitectura-informal-o-empirica
